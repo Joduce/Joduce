@@ -9,7 +9,7 @@ SKILLS:
 ________________________
 Languages: 
 
-● English
+● English \n
 ● Spanish 🇩🇴 🇪🇨
 
 
